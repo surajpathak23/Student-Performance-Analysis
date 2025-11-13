@@ -45,3 +45,6 @@ This project is for educational purposes.
 ## 🔗 Connect with Me
 
 - [LinkedIn](https://www.linkedin.com/in/suraj-kumar-2307skp/)
+- [GitHub](https://github.com/surajpathak23)
+- [WhatsApp](https://wa.me/919142496994)
+
